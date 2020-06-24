@@ -19,4 +19,8 @@
 
 ## 效果
 
+
 ![](https://tva1.sinaimg.cn/large/007S8ZIlly1gg3q9lc6thj30h60tmt9u.jpg)
+
+[下载效果图片](https://tva1.sinaimg.cn/large/007S8ZIlly1gg3q9lc6thj30h60tmt9u.jpg)
+
